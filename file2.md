@@ -1,0 +1,1 @@
+Eryk je kupke
